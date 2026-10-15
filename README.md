@@ -94,6 +94,7 @@ The design emphasizes the connection between nature, sustainability, and artific
 Verdant AI — Growing a Smarter, Greener Future.
 
 The brand represents a future where artificial intelligence and sustainable agriculture work together to support innovation, responsible resource use, and environmental progress.
+<img width="1531" height="812" alt="Screenshot 2026-10-15 223350" src="https://github.com/user-attachments/assets/2d90fc38-aa61-4985-bde8-9d99c41a0223" />
 
 ---
 
